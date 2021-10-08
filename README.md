@@ -1,2 +1,0 @@
-# preparatoria_guerreros_pagina
-actividad
